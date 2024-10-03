@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tempestar11
-- 👀 I’m interested in 
+- 👀 I like guitars and planes
 - 🌱 I’m currently learning Computer Science with Cybersecurity
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me: Instagram - Tempestarii._
