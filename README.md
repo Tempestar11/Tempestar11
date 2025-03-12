@@ -2,7 +2,7 @@
 - 👀 I like guitars and planes
 - 🌱 I’m currently learning Computer Science with Cybersecurity
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me: Instagram - Tempestarii._
+- 📫 How to reach me: kokkenneth04@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I DJ and make my own music!
 
